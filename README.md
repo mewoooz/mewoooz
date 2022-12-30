@@ -2,7 +2,7 @@
 - hihi i'm mewo but i'd prefer if you called me amia if we just recently met !! ![meow](https://user-images.githubusercontent.com/118755924/208464431-b6327e61-12f9-4a41-9098-d0f4f9cf3c08.gif)
 - idm interactions, you can always whisper me if you wanna chat !!!!
 - i replace some words w numbers or shorten them (4=for ; 2=too/to ; w=with)
-- more info in my main [rentry](https://rentry.co/mew0) if youre curious 
+- more info in my main [rentry](https://rentry.co/loveclouds) if youre curious 
 <!--
 **mewoooz/mewoooz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
