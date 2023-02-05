@@ -1,5 +1,5 @@
 ### ![errrmm](https://user-images.githubusercontent.com/118755924/208465416-06167c3c-42ca-4ff0-9def-5de4182a1d49.png)
-- leave me a message [here](https://mewo.123guestbook.com/) !!
+- jumpscare !!
 <!--
 **mewoooz/mewoooz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
